@@ -1,1 +1,1 @@
-Brasiliense de 22 anos, adora viajar, comer e programar. Estudante de Engenharia de Computação, não passa um dia longe de múltiplus dispositivos conectados.
+Brasiliense de 22 anos, adora viajar, comer e programar. Estudante de Engenharia de Computação, não passa um dia longe de múltiplos dispositivos conectados.
